@@ -14,3 +14,16 @@ nieliniowość jest trudna do zbalansowania bo nie wiadomo jak potężny jest gr
 The Narrative Rhizome Essay 
 
 Rhizomatic Narrative Structure License
+
+RNS - rhizomatic narrative sphere. Containing all possible narrative
+elements and outcomes being projected structurally at random within a
+liquid point sphere for the purpose of fluid and surprising user interaction.
+Random structurality - derived from the theory of rhizome containing
+specific arborescent models within a rhizomatic interconnected network of
+elementa,
+Rhizomatic narrative sphere in the boundaries of a metaphore is a tool to be
+used. However, outside the basic boundaries it aspires to be much more than
+that. It is a world creator that would enable. It is an philosophical entity that
+possesses all existing elements within one set. If applied to a real current world
+it would both contain rhizomatic chance encounters if looked at in close up
+and arborescent causality patterns if viewed in a macro scale, from afar. It 
